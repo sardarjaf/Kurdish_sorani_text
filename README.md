@@ -1,0 +1,1 @@
+# Kurdish_sorani_text
